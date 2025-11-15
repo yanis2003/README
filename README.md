@@ -32,4 +32,4 @@ Toujours motivé pour apprendre quelque chose de nouveau. 🌟
 ---
 
 ## 📫 Contact
-📧 yanis.bouriah@example.com  
+📧 yanisbouriah@gmail.com
